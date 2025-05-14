@@ -9,7 +9,7 @@
 - **Projected Market Size by 2031:** USD 171.0 billion  
 - **CAGR (2023–2031):** 13.6%  
 
-Efforts to reduce dependence on fossil fuels and shift to renewable energy are driving the battery materials market. The security of raw materials and the stability of supply chains are becoming increasingly critical. The growing emphasis on sustainable production and recycling of battery components is shaping the market.
+Efforts to reduce dependence on fossil fuels and shift to renewable energy are driving the [battery materials market](https://www.transparencymarketresearch.com/battery-materials-market.html) The security of raw materials and the stability of supply chains are becoming increasingly critical. The growing emphasis on sustainable production and recycling of battery components is shaping the market.
 
 ## Key Drivers
 
